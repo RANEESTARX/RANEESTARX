@@ -4,6 +4,7 @@
 
 Helloz. !
 
+` " your local silly goober, a BIG marvel fan, Thor as a Favorite character ⚡. Rarely on any platforms. ! " -
 - you can call me Rani/Rania/Ranee/Rin/Ree, 14 yrs old
 - I love Marvel/MCU
 -  Pronouns: She/Her
