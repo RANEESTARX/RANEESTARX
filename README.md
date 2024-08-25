@@ -4,13 +4,14 @@
 
 Hallo!
 
-` " your local silly goober, a BIG marvel fan, Thor as a Favorite character (obv) ⚡. I'm Rarely on any platforms! " -
-- you can call me Rani/Rania/Rin
+` " your local silly goober, a BIG marvel fan, Thor as a Favorite character⚡. I'm Rarely on any platforms " -
+- you can call me Rani/Rania/Rin or anything >_<
 - 14 yrs old
-- I like fantasy, thriller,detective, or superhero movies.
+- I like fantasy, thriller,detective, or superhero movies, would LOVE to hear some epic recommendations!
 - I also love IHNMAIMS, garn47, The hobbit and lord of the rings.
--  Pronouns: any
--  check out my Carrd for more Info, and Patreon for ponytown!
+- Pronouns: any
+- check out my Carrd for more Info, and Patreon for ponytown!
+- I also have Castle (a game app), might make some minigames if I can XP 
 
 <!---
 RANEESTARX/RANEESTARX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
