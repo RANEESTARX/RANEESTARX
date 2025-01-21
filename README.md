@@ -1,6 +1,7 @@
 " I think I'll have that drink now. . . "
 
-![The-Future-of-The-MCU-The-Nerd-Daily](https://github.com/RANEESTARX/RANEESTARX/assets/166892432/20e5b559-9964-44a0-8165-80497845acc4)
+![![image](https://github.com/user-attachments/assets/223a5128-4983-4a28-bf22-7a8b2bf24944)
+](https://github.com/RANEESTARX/RANEESTARX/assets/166892432/20e5b559-9964-44a0-8165-80497845acc4)
 
 Hallo!
 
