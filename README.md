@@ -5,8 +5,13 @@
 
 Hi, hello, so basically:
 
-I'm Rani, minor⛏⛏⛏, Any pronoun but She/Her preferred. I like Marvel and many fandoms including; supernatural, arcane, the boys, dc, deadplate, good omens.. etc. and I LOVE mlm/bl/gaymenkissing ||warning: i will ship any male characters i see so beware😈||
+I'm Rani, minor⛏⛏⛏, Any pronoun but She/Her preferred. I like Marvel and many fandoms including; supernatural, arcane, the boys, dc, deadplate, good omens.. etc. and I LOVE mlm/bl/gaymenkissing.. <details>
+  <summary>warning</summary>
 
+  ```
+ i will ship any male characters i see so beware😈
+  ```
+</details>
 - check out my Carrd for more Info, and Patreon for ponytown. thx✨
 
 <!---
