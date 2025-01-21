@@ -1,7 +1,6 @@
-" I think I'll have that drink now. . . "
 
-![![image](https://github.com/user-attachments/assets/223a5128-4983-4a28-bf22-7a8b2bf24944)
-](https://github.com/RANEESTARX/RANEESTARX/assets/166892432/20e5b559-9964-44a0-8165-80497845acc4)
+
+![ec9b13c09480c9f98d3e8599da1ddffa](https://github.com/user-attachments/assets/93604c01-e5e1-4d35-861d-db31d5d40b17)
 
 Hallo!
 
