@@ -13,7 +13,7 @@ i will ship any male characters i see so beware😈
 i have bad mental health and will prolly be offensive. pls ignore if i did.
   ```
 </details>
-- check out my Carrd for more Info, and sign my ata. thx✨
+- check out my Carrd for more Info, and sign my ata to make me leave your walls ❤😇/joke. thx✨
 
 <!---
 RANEESTARX/RANEESTARX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
