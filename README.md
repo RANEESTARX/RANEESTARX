@@ -11,7 +11,7 @@ I'm Rani, artist, Any pronoun but She/Her preferred. I like Marvel and many fand
   <summary>warning</summary>
 
   ```
-i will ship any male characters i see so beware😈
+i will ship any male characters i see so beware😈 (NO PROSHIPS)
 i have bad mental health and will prolly be offensive. pls ignore if i did.
   ```
 </details>
