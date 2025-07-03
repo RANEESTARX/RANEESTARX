@@ -1,4 +1,6 @@
+❗ H + C and everything else is allowed but PLS DONT COVER ME!! i'd usually be afk so whispers are recommended.
 
+Castiel is so me ⬇
 
 ![download (2)](https://github.com/user-attachments/assets/c563ae75-92fc-472c-9483-f53a19503a40)
 
