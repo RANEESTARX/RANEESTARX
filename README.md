@@ -8,11 +8,11 @@
 
 
 
-❗ H + C and everything else is allowed but PLS DONT COVER ME!! i'd usually be afk so whispers are recommended.
+❗ H + C and everything else is okay but PLS DONT COVER ME!! i'd usually be afk so whispers are recommended.
 
 Hi, hello, so basically:
 
-I'm Rani, artist, Any pronoun. I like Marvel and many fandoms including; supernatural, Limbus Company, arcane, IHNMAIMS, the boys, Brooklyn 99, deadplate, good omens.. etc. and I LOVE mlm/bl/gaymenkissing. I LIKE TALKING ABT FANDOMS AND ANY LORE SO PLS SHARE SOME W/ME!! <details>
+I'm Rani, artist, Any pronouns are completely fine. Im hyperfixtated on Marvel and many fandoms including; supernatural, Limbus Company, arcane, IHNMAIMS, the boys, Brooklyn 99, deadplate, good omens.. etc. and I LOVE mlm/bl/gaymenkissing. I LIKE TALKING ABT FANDOMS AND ANY LORE SO PLS SHARE SOME W/ME!! <details>
   <summary>warning</summary>
 
   ```
